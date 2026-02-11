@@ -1,0 +1,2 @@
+# How-much-is-inflation-affecting-FMCG-FCW-Diary-brands-Powerpoint-Presntation-
+This research project analyzed the significant impact of inflation-driven price increases on FMCG &amp; FCW dairy brands in Nigeria during the time of Covid 19. The study examined how rising consumer prices affected brand performance, consumer behavior, and competitive positioning across the evaporated milk (Evap) &amp; instant milk powder (IMP) categories
